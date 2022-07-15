@@ -1,5 +1,9 @@
 # BaddieRittenhouse.github.io
 
+BaddieRittenhouse.github.io
+
+## The virgin shortie Tighnari
+
 https://www.reddit.com/r/Genshin_Impact_Leaks/
 
 So I'm reading this subreddit, and it's obvious USA FBI agents are running it. They are backing Tighnari because his name has 'nari' which is similar to the abusive Salty Nori's name. Salty Nori has colluded with the USA FBI and other agents to assassinate her political opponents on the Genshin fandom before. And the worst part is that it seems like the Chinese media got fooled by both the USA and Salty Nori.
